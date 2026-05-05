@@ -1,1 +1,0 @@
-# Singapore-Industrial-Robotics-Market
